@@ -1,0 +1,2 @@
+# kesmek
+YUNTIK KESME 
